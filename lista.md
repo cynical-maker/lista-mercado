@@ -2,7 +2,7 @@
 
 
 ## Libra de ñame
-- 2 kilos de queso salado para mote *opcional*
+- 3 kilos de queso salado para mote *opcional*
 - suero costeño
 - aji pequeño
 - 2 libras de arroz
